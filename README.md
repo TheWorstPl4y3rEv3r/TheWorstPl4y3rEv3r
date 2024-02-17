@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TheWorstPl4y3rEv3r
+- 👀 I’m interested in video game development and automotive 
+- 🌱 I’m currently learning how to do basic coding
+- 😄 Pronouns:he/him
